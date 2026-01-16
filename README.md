@@ -1,1 +1,0 @@
-# P3_WV_Cristo_UCSGB2025iave3l
